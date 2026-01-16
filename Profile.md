@@ -9,6 +9,6 @@ If you have this, you're likely from ponytown! Correct me if i'm wrong, though! 
 CRK Addict, Ponytown Addict
 Truthless Recluse and Awakened PV Yumeshipper
 Hella srs
-![Alt text]([image-url](https://i.pinimg.com/736x/20/6c/da/206cda92602d4cc87af38a9417fe1add.jpg))
+!([image-url](https://i.pinimg.com/736x/20/6c/da/206cda92602d4cc87af38a9417fe1add.jpg))
 
 I love him sm
