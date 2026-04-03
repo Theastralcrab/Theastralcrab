@@ -20,6 +20,8 @@ Recently made ponies you'll see me as:
 
 My sona(s)!
 
+D3rlord3/Derek - SF/DAWTDE (A PEAK Minecraft ARG)
+
 Bereavement!Tale characters (An UT Roleplay AU. Papyrika supremacy LOL) Names will usually have BT!AU)
 
 Salt Route Spamton - DR AU
