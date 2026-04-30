@@ -28,8 +28,6 @@ Bereavement!Tale characters (An UT Roleplay AU. Papyrika supremacy LOL) Names wi
 
 Salt Route Spamton - DR AU
 
-Matt - Eddsworld
-
 Allen/Riliane - Evillious Chronicles
 
 Valani/Truthless Recluse/PVC in general - CRK+Night Dancer AU (Sometimes other cookies, too)
@@ -46,7 +44,7 @@ N25 Miku/Mafuyu - PJSK
 
 Others you'll find me as!
 
-Shiny Pokemon (Umbreon, Litten, Alolan Vulpix, Mega Absol)
+Shiny Pokemon (Umbreon, Alolan Vulpix, Mega Absol)
 
 Jecka - Co'09
 
