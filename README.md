@@ -46,7 +46,7 @@ Others you'll find me as!
 
 Shiny Pokemon (Umbreon, Alolan Vulpix, Mega Absol)
 
-Jecka - Co'09
+Jecka, Nicole - Co'09
 
 Sayori - DDLC
 
