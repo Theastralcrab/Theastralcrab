@@ -12,6 +12,10 @@ Truthless Recluse and Awakened PV Yumeshipper
 
 Hella srs
 
+Other strawpages: Please check them out!!!
+https://blueberrypoptartwip.straw.page/
+https://thenewdarkstargod.straw.page/
+
 ~~
 
 My ponies may change a lot, and lately i've been in the Undertale area a bunch. You'll know when you see me, likely, i'll have my patreon or github visible!
