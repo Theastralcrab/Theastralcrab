@@ -14,7 +14,7 @@ Hella srs
 
 Other strawpages: Please check them out!!!
 
-https://blueberrypoptartwip.straw.page/
+https://blueberrypoptartwip.straw.page/ - My CRK OC!!!
 
 https://thenewdarkstargod.straw.page/
 
