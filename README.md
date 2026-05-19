@@ -36,7 +36,7 @@ Salt Route Spamton - DR AU
 
 Allen/Riliane - Evillious Chronicles
 
-Valani/Truthless Recluse/PVC in general - CRK+Night Dancer AU (Sometimes other cookies, too)
+Truthless Recluse/PVC in general - CRK (Sometimes other cookies, too)
 
 Remus/Roman - Sanders Sides
 
