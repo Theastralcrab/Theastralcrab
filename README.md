@@ -42,21 +42,19 @@ Truthless Recluse/PVC in general - CRK (Sometimes other cookies, too)
 
 Remus/Roman - Sanders Sides
 
-Lapis Lazuli/Peridot - SU
+Jecka, Nicole - Co'09
 
 Princess Luna/Fluttershy - MLP
 
 N25 Miku/Mafuyu - PJSK
+
+Sayori - DDLC
 
 ~~
 
 Others you'll find me as!
 
 Shiny Pokemon (Umbreon, Alolan Vulpix, Mega Absol)
-
-Jecka, Nicole - Co'09
-
-Sayori - DDLC
 
 Possessed Hunter - TOH
 
