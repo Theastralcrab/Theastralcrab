@@ -44,21 +44,13 @@ Remus/Roman - Sanders Sides
 
 Jecka, Nicole - Co'09
 
-Princess Luna/Fluttershy - MLP
+Princess Luna, Fluttershy, Starlight Glimmer - MLP
 
 N25 Miku/Mafuyu - PJSK
 
 Sayori - DDLC
 
 ~~
-
-Others you'll find me as!
-
-Shiny Pokemon (Umbreon, Alolan Vulpix, Mega Absol)
-
-Possessed Hunter - TOH
-
-
 
 ![206cda92602d4cc87af38a9417fe1add](https://github.com/user-attachments/assets/c323df2b-5414-4d6a-8ca2-68310b98d4f8)
 
