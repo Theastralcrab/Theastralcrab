@@ -12,7 +12,7 @@ Truthless Recluse and Awakened PV Yumeshipper
 
 Hella srs
 
-Other strawpages: Please check them out!!!
+Other strawpages: Please check them out!!! Two are also in my profile links!
 
 https://searchingforastrawpagethatdoesntexist.straw.page/ - ALL SFAWTDE CHARACTERS THAT I HAVE ARE HERE!
 
