@@ -32,15 +32,13 @@ Ramuel/GUARDIEN4 - Lambyland.net
 
 D3rlord3/Derek, The King in Yellow/Hastur, Averythemayo/Avery - SF/DAWTDE (A PEAK Minecraft ARG)
 
-Bereavement!Tale characters (An UT Roleplay AU. Papyrika supremacy LOL) Names will usually have BT!AU - ASK ME ANYTHING ON PAPYRIKA'S STRAWPAGE 2ND STRAWPAGE LINK!!)
+Arthur Lester - Malevolent Podcast (Peak podcast also relating to the King in Yellow)
 
-Salt Route Spamton - DR AU
+Bereavement!Tale characters (An UT Roleplay AU. Papyrika supremacy LOL) Names will usually have BT!AU - ASK ME ANYTHING ON PAPYRIKA'S STRAWPAGE 2ND STRAWPAGE LINK!!)
 
 Allen/Riliane - Evillious Chronicles
 
 Truthless Recluse/PVC in general - CRK (Sometimes other cookies, too)
-
-Remus/Roman - Sanders Sides
 
 Jecka, Nicole - Co'09
 
