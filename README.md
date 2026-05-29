@@ -32,7 +32,7 @@ Ramuel/GUARDIEN4 - Lambyland.net
 
 D3rlord3/Derek, The King in Yellow/Hastur, Averythemayo/Avery - SF/DAWTDE (A PEAK Minecraft ARG)
 
-Arthur Lester - Malevolent Podcast (Peak podcast also relating to the King in Yellow)
+Arthur Lester, John Doe/The King in Yellow - Malevolent Podcast (Peak podcast also relating to the King in Yellow)
 
 Bereavement!Tale characters (An UT Roleplay AU. Papyrika supremacy LOL) Names will usually have BT!AU - ASK ME ANYTHING ON PAPYRIKA'S STRAWPAGE 2ND STRAWPAGE LINK!!)
 
