@@ -14,7 +14,9 @@ Hella srs
 
 Other strawpages: Please check them out!!! Two are also in my profile links!
 
-https://searchingforastrawpagethatdoesntexist.straw.page/ - ALL SFAWTDE CHARACTERS THAT I HAVE ARE HERE!
+https://searchingforastrawpagethatdoesntexist.straw.page/ - ALL SFAWTDE CHARACTERS THAT I HAVE ARE HERE!!!
+
+https://aregectedstrawpage.straw.page/ - ALL AREGECT CHARACTERS THAT I HAVE ARE HERE!!!
 
 https://blueberrypoptartwip.straw.page/ - My CRK OC!!!
 
