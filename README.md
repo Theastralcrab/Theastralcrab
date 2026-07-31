@@ -5,6 +5,7 @@ Uhm how do I make this look good...
 
 Welcome to my github!
 If you have this, you're likely from ponytown! Correct me if i'm wrong, though! (This was made mainly for Ponytown)
+- LOVE YOU R+Z <3
 
 CRK Addict, Ponytown Addict
 
