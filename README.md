@@ -19,7 +19,7 @@ https://searchingforastrawpagethatdoesntexist.straw.page/ - ALL SFAWTDE CHARACTE
 
 https://aregectedstrawpage.straw.page/ - ALL AREGECT CHARACTERS THAT I HAVE ARE HERE!!!
 
-https://blueberrypoptartwip.straw.page/ - My CRK OC!!!
+https://thepoptartjester.straw.page/ - My CRK OC!!!
 
 https://thenewdarkstargod.straw.page/
 
