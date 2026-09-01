@@ -23,7 +23,7 @@ https://siteofaclone.straw.page/ - AReGect AU  w/ R+Z !! Check it out !!
 
 https://thepoptartjester.straw.page/ - My CRK OC!!!
 
-https://thenewdarkstargod.straw.page/
+https://thenewdarkstargod.straw.page/ - Outdated and not as used, but don't be afraid to send stuff here still, too!
 
 ~~
 
