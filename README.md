@@ -19,7 +19,7 @@ https://searchingforastrawpagethatdoesntexist.straw.page/ - ALL SFAWTDE CHARACTE
 
 https://aregectedstrawpage.straw.page/ - ALL AREGECT CHARACTERS THAT I HAVE ARE HERE!!!
 
-https://siteofaclone.straw.page/ - AReGect AU  w/ R+Z !! Check it out !!
+https://aregectedclonessite.straw.page/ - AReGect AU  w/ R+Z !! Check it out !!
 
 https://thepoptartjester.straw.page/ - My CRK OC!!!
 
