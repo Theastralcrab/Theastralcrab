@@ -33,11 +33,11 @@ Recently made ponies you'll see me as:
 
 My sona(s)!
 
-Ramuel/GUARDIEN4 - Lambyland.net
+Moenella, Ze, Regect, Se/Seth - AReGect + an AU of Fake Ze heh 👀
 
 D3rlord3/Derek, The King in Yellow/Hastur, Averythemayo/Avery - SF/DAWTDE (A PEAK Minecraft ARG)
 
-Arthur Lester, John Doe/The King in Yellow - Malevolent Podcast (Peak podcast also relating to the King in Yellow)
+Arthur Lester - Malevolent Podcast (Peak podcast also relating to the King in Yellow)
 
 Bereavement!Tale characters (An UT Roleplay AU. Papyrika supremacy LOL) Names will usually have BT!AU - ASK ME ANYTHING ON PAPYRIKA'S STRAWPAGE 2ND STRAWPAGE LINK!!)
 
@@ -47,11 +47,9 @@ Truthless Recluse/PVC in general - CRK (Sometimes other cookies, too)
 
 Jecka, Nicole - Co'09
 
-Princess Luna, Fluttershy, Starlight Glimmer - MLP
+Princess Luna, Starlight Glimmer - MLP
 
 N25 Miku/Mafuyu - PJSK
-
-Sayori - DDLC
 
 ~~
 
