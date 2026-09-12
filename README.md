@@ -21,6 +21,8 @@ https://aregectedstrawpage.straw.page/ - ALL AREGECT CHARACTERS THAT I HAVE ARE 
 
 https://aregectedclonessite.straw.page/ - AReGect AU  w/ R+Z !! Check it out !!
 
+https://thesearchforthe.straw.page/ - TSFTL Hummer themed Strawpage. Matching with R!! https://searching4levi.straw.page/ !! :)
+
 https://thepoptartjester.straw.page/ - My CRK OC!!!
 
 https://thenewdarkstargod.straw.page/ - Outdated and not as used, but don't be afraid to send stuff here still, too!
