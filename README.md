@@ -35,11 +35,11 @@ Recently made ponies you'll see me as:
 
 My sona(s)!
 
-Hummer5718 - TSFTL (Also a PEAK ARG)
+Hummer5718 - TSFTL (Also peak)
 
-Moenella, Ze, Regect, Se/Seth - AReGect + an AU of Fake Ze heh 👀
+Moenella, Ze, Regect, Se/Seth - AReGect + an AU of Fake Ze heh 👀 (Also peak)
 
-D3rlord3/Derek, The King in Yellow/Hastur, Averythemayo/Avery - SF/DAWTDE (A PEAK Minecraft ARG)
+D3rlord3/Derek, The King in Yellow/Hastur, Averythemayo/Avery - SF/DAWTDE (PEAK)
 
 Arthur Lester - Malevolent Podcast (Peak podcast also relating to the King in Yellow)
 
