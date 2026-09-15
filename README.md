@@ -51,7 +51,7 @@ Truthless Recluse/PVC in general - CRK (Sometimes other cookies, too)
 
 Jecka, Nicole - Co'09
 
-Princess Luna, Starlight Glimmer - MLP
+Princess Luna - MLP
 
 N25 Miku/Mafuyu - PJSK
 
